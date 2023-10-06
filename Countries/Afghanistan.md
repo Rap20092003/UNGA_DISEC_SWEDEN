@@ -1,0 +1,8 @@
+
+Sweden has had diplomatic relations with Afghanistan since the 1930s. Sweden has provided significant development assistance to Afghanistan since the early 2000s, and Afghanistan has been the largest recipient of Swedish development assistance since 2013. Sweden also contributed to the International Security Assistance Force (ISAF) in Afghanistan between 2001 and 2014, and to the Resolute Support Mission (RSM) from 2015 to 2021.
+
+The Taliban's takeover of Afghanistan in August 2021 has had a significant impact on Sweden's relationship with the country. Sweden closed its embassy in Kabul and evacuated all its staff, including Swedish and Afghan citizens. In May 2022, the Taliban suspended all Swedish activities in Afghanistan in response to the public burning of the Quran at a protest in Sweden.
+
+Despite the challenges, Sweden remains committed to supporting the Afghan people. Sweden continues to provide humanitarian assistance to Afghanistan through international organizations and non-governmental organizations (NGOs). Sweden is also working to support Afghan refugees and asylum seekers in Sweden and other countries.
+
+The future of Sweden's relationship with Afghanistan is uncertain. The Taliban's ban on Swedish activities in the country is a major setback. However, Sweden has a long history of engagement with Afghanistan, and it is likely that Sweden will continue to support the Afghan people in some way, even under Taliban rule.
